@@ -1,1 +1,4 @@
 # warmup
+
+bulalalalak a
+lbkobkfob
